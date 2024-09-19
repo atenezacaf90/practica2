@@ -1,2 +1,0 @@
-# pruebagh
-Curso UCUENCA
